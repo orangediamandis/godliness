@@ -13,4 +13,4 @@ The godly scale is a
   > The next question is, why should I care about the particular realm over which you preside, so to speak? A god of carnivores is of little interest to me. A god of pillows, on the other hand, automatically possesses a high rank because pillows are *extremely important*. The more unique and valuable niches you fill, the more high-ranking you are likely to be. 
 
 
-2. 
+2.  
