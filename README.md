@@ -11,7 +11,6 @@ While godliness is not an exact science, there are various metrics which can mak
 
 1. Ability 2 fill a unique niche
 
-
   > Why should you be a god of anything? If you can answer this question, you are already on the godly path. 
   
   > The next question is: why should I care about the particular realm over which you preside, so to speak? A god of carnivores is of little interest to me. A god of pillows, on the other hand, is of immediate and crucial interest to me because pillows are *extremely important*. The more unique and valuable niches you fill, the more high-ranking you are likely to be. 
