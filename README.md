@@ -19,11 +19,11 @@ While godliness is not an exact science, there are various metrics which can mak
 2.  Consistently good (and occasionally lame, there is a certain charm in that) humour
 
   > You can't just repeat "bitcoin .bash" forever.
-
+  >
   > You also can't repeat "I'll have to look up SchNet porn later" forever.
-
+  >
   > You also can't eternally recycle *My Immortal* quotes.
-
+  >
   > Why would I hardcore worship somebody who isn't able to endlessly entertain me?
 
 
