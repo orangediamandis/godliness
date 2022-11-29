@@ -18,7 +18,9 @@ While godliness is not an exact science, there are metrics which can make the as
 2.  Consistently good (and occasionally lame, there is a certain charm in that) humour
 
   > You can't just repeat "bitcoin .bash" forever.
+
   > You also can't repeat "I'll have to look up SchNet porn later" forever.
+
   > You also can't eternally recycle *My Immortal* quotes.
 
   > I know this imposes a lot of restrictions but why would I hardcore worship somebody who isn't able to constantly entertain me?
@@ -26,6 +28,22 @@ While godliness is not an exact science, there are metrics which can make the as
 
 3. Cuteness
 
-  > Self-explanatory -- why do you think Marta and devil-spawn Mercedes rank so high?
+  > Self-explanatory -- why do you think Marta and Mercedes rank so high?
+
+
+4. Answers my prayers (relatively quickly)
+
+  > I have needs. 
+
+
+5. Slightly weird and off-putting but in an alluring way?
+
+  > Creedence the goblin queen is a good example of this. There's something **so hot** about her.
+
+
+6. Can be seduced with corn
+
+  > Self-explanatory. 
+
 
 
