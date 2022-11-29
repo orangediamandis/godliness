@@ -43,9 +43,19 @@ While godliness is not an exact science, there are various metrics which can mak
   > Creedence the goblin queen is a good example of this. There's something **so hot** about her.
 
 
-6. Can be seduced with corn
+6. Can harness the seductive powers of some unexpected inanimate object
 
-  > Self-explanatory. 
+  > Creedence has her corn, Connor had a fishing rod, Andreas has... glasses or something.
+
+
+7. Minimum one (1) obscure talent
+
+  > Like, Marta is a linguistic visionary whose revolutionisation of the English language hasn't been observed since Shakespeare's time.
+
+
+8. Like me more
+
+  > Since we always have to be equal in our mutual godly rank, if you just like me more it follows that I have to like you more, and that will BOOST your godly rank.
 
 
 
