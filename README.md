@@ -7,7 +7,7 @@ So you want to be a high-ranking god, HUH!? Well, while some of us are born with
 While godliness is not an exact science, there are various metrics which can make the ascension process more straightforward and seamless.
 
 
-![Godliness isn't an exact science, but there are various metrics which can make the ascension process more straightforward and seamless.!](/how2begodly.png "The Approximate Godly Scale")
+![Godliness isn't an exact science, but there are various metrics which can make the ascension process more straightforward and seamless!](./how2begodly.png "The Approximate Godly Scale")
 
 1. Ability 2 fill a unique niche
 
