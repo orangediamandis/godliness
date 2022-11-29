@@ -25,7 +25,7 @@ While godliness is not an exact science, there are various metrics which can mak
 
   > You also can't eternally recycle *My Immortal* quotes.
 
-  > I know this imposes a lot of restrictions but why would I hardcore worship somebody who isn't able to constantly entertain me?
+  > Why would I hardcore worship somebody who isn't able to endlessly entertain me?
 
 
 3. Cuteness
