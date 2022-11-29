@@ -4,7 +4,7 @@
 So you want to be a high-ranking god, HUH!? Well, while some of us are born with a certain *je ne sais quoi* that makes us worthy of worship, others (like yourself) have to work hard to ascend the godly ranks. Fortunately, there are steps you can take to boost your god level!!! (In my eyes. Which are the only eyes that matter (they are after all superhuman (aka **GODLY**)).)
 
 ## What is the GODLY scale?
-While godliness is not an exact science, there are various metrics which can make the ascension process more straightforward and seamless.
+While godliness is not an exact science, there are metrics which can make the ascension process more straightforward and seamless.
 ![Godliness isn't an exact science, but there are various metrics which can make the ascension process more straightforward and seamless.!](/how2begodly.png "The Approximate Godly Scale")
 
 1. Ability 2 fill a unique niche
@@ -18,10 +18,8 @@ While godliness is not an exact science, there are various metrics which can mak
 2.  Consistently good (and occasionally lame, there is a certain charm in that) humour
 
   > You can't just repeat "bitcoin .bash" forever.
-
-  > You also can't repeat "I'll have to look up SchNet porn later" forever.
-
-  > You also can't eternally recycle *My Immortal* quotes.
+  You also can't repeat "I'll have to look up SchNet porn later" forever.
+  You also can't eternally recycle *My Immortal* quotes.
 
   > I know this imposes a lot of restrictions but why would I hardcore worship somebody who isn't able to constantly entertain me?
 
